@@ -15,7 +15,7 @@ Il décida de rédiger des invitations avec son encre spéciale qui brillait dan
 Les chauves-souris les livrèrent aux villageois avec des airs mystérieux, créant une sensation d'excitation dans le village. 
 Le soir de la grande fête déguisée au château, Dentcula attendait, espérant que le livreur de lait serait là, même si c'était avec un costume effrayant.
 
-Profitant de la fête orginasée dans le grand château celui-ci sorti lors de la tombé de la nuit à la recherche de son précieux lait.
+Profitant de la fête organisée dans le grand château celui-ci sorti lors de la tombé de la nuit à la recherche de son précieux lait.
 Aucun magasin ouvert à cette heure de la nuit biensur pour notre malheureux Dentcula.
 Se résignant, il se rendit à la fête buvant quelques cocktails proposés par les villageois.
 DU LAIT ! Quel surprise! Un lait tendre se mélangeant délicatement avec de la noix de coco et une petite touche...
